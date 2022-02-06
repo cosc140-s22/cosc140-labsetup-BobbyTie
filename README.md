@@ -14,5 +14,5 @@ The biggest surprise so far has been how similar Cardiff is to the US. A lot of 
 
 ## Feedback
 
-Once you commit and push your work to Github, I'll update this section with feedback.
+I hope you're able to get around the UK and the rest of Europe too!  
 
